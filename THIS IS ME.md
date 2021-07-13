@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bakedpotat0
+- 👀 I’m interested in basically anything that explain why humans are weird
+- 🌱 I’m currently learning coding on Discord
+- 📫 How to reach me BakedPotato#5682 DM me :)
